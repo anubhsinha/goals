@@ -1,1 +1,0 @@
-5 perfect pushups daily
